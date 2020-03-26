@@ -1,0 +1,1 @@
+https://www.getdroidtips.com/install-official-twrp-recovery-for-sony-xperia-v/
